@@ -1,1 +1,1 @@
-#please read me first before you get started 
+#please read me first before you get started and step by step to check it out
